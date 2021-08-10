@@ -1,0 +1,1 @@
+This is eddah,she is good and obedient
